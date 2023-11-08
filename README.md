@@ -45,9 +45,6 @@ Password - masai
 
 ![31 01 2023_21 16 55_REC](https://user-images.githubusercontent.com/100460788/215808721-eb9f8778-53df-43fe-a1ab-662c0ff78c4f.png)
 
-2.Profile
-
-![31 01 2023_21 17 08_REC](https://user-images.githubusercontent.com/100460788/215808736-31e6dd9e-e5f3-4a48-9bbf-d505c27579c2.png)
 
 3.Beds
 
